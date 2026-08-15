@@ -14,6 +14,7 @@ I have practical experience in data cleaning, data validation, data transformati
 💼 Experience
 
 Data Analyst Intern — Sayarah Tech Trading
+
 📅 June 21, 2026 – August 21, 2026
 
 
